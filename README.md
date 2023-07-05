@@ -3,10 +3,10 @@
   
   ![i hate nig](https://media.tenor.com/S9enOIQiZ8gAAAAC/troll-troll-face.gif)
   # trickster
-- trickster#7205 / @connived
+- trickster#7205 / @criminalise
 
   
-[sitething](https://trickster.pw)
+[my website](https://trickster.pw)
   
  
   
