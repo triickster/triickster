@@ -1,3 +1,6 @@
+<div align=left>
+  <img src="https://gnaa.gay/assets/gnaa%20trademark.png" height=60>
+</div>
 <div align=center>
   
   
