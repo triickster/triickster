@@ -2,24 +2,20 @@
   <img src="https://gnaa.gay/assets/gnaa%20trademark.png" height=60>
 </div>
 <div align=center>
-  
-  
-  ![i hate nig](https://media.tenor.com/S9enOIQiZ8gAAAAC/troll-troll-face.gif)
-  # trickster
-- trickster#7205 / @criminalise
+
 
   
-[my website](https://trickster.pw)
+  # trickster
   
- 
-  
-  ```
-  i put random stuff here,
-  if you are a federal government employee you should use these without airgapping or any security measurements
+  trickster#7205 / @criminalise. this is [my website](https://trickster.pw)
+
+
+  [GNAA](https://gnaa.gay) | [popbob foundation](https://popbob.foundation)
+
+i put random retarded shit here
 
   js/html/php
-  ```
-  
+
   
   
   
