@@ -1,5 +1,5 @@
 <div align=left>
-  <img src="https://gnaa.gay/assets/gnaa%20trademark.png" height=60>
+  <img src="https://gnaa.gay/assets/gnaanew.png" height=30>
 </div>
 <div align=center>
 
