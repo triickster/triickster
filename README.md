@@ -7,14 +7,14 @@
   
   # trickster
   
-  trickster#7205 / @criminalise. this is [my website](https://trickster.pw)
+  @trickst_er on discord. this is [my website](https://trickster.pw)
 
 
-  [GNAA](https://gnaa.gay) | [popbob foundation](https://popbob.foundation)
+  [GNAA](https://gnaa.gay) | [roblox](https://www.roblox.com/users/307802151/profile)
 
 i put random retarded shit here
 
-  js/html/php
+  js/html/php/python
 
   
   
